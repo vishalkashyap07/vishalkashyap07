@@ -1,6 +1,6 @@
-# <h1  align = "center">Hi, I'm Vishal, Sales Executive</h1>
+# <h1  align = "center">Hi, I'm Vishal Kashyap, Accounts & Broadband Executive</h1>
 
-- 🔭 I'm  Sales Executive at [`agroOrbit`](https://agroorbit.com/).
+- 🔭 I'm  Accounts Executive at [`Gigantic Infotel Pvt.Ltd`](https://gtel.in/).
 - ⚡ Fun fact **I love watching and playing Football.**
   <br/><br/><br/><br/>
 <h2>Connect with me</h2>
