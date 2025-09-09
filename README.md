@@ -1,6 +1,6 @@
-# <h1  align = "center">Hi, I'm Vishal Kashyap, Accounts & Broadband Executive</h1>
+# <h1  align = "center">Hi, I'm Vishal Kashyap, Accounts & Broadband Executive & Digital Marketing & Operations Executive at Kishori Lal Tandoors</h1>
 
-- 🔭 I'm  Accounts Executive at [`Gigantic Infotel Pvt.Ltd`](https://gtel.in/).
+- 🔭 I'm  Accounts Executive at [`Gigantic Infotel Pvt.Ltd`](https://gtel.in/)..(https://kishorilaltandoors.com/)
 - ⚡ Fun fact **I love watching and playing Football.**
   <br/><br/><br/><br/>
 <h2>Connect with me</h2>
